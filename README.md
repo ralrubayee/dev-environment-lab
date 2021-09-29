@@ -1,5 +1,5 @@
 
-![ ](https://imgur.com/gzC77kC)
+![ ](https://i.imgur.com/gzC77kC.png)
 
 
 ## OS
